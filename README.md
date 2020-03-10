@@ -1,4 +1,3 @@
-# hello-world
-just another repository
 
-hi i am linda. I am a java backend developer and i like coding...
+
+Jesus Christ is my Lord.. I love him with all my heart because he is all for me.
